@@ -1,0 +1,7 @@
+- 👋 Hi, I’m ur worst nightmare
+- 👀 I’m interested in ... whatever
+- 🌱 I’m currently learning this,of course
+- 💞️ I’m looking to collaborate on U
+- 📫 How to reach me DON'T TEACH ME
+- 😄 Pronouns:thats what I said
+- ⚡ Fun fact:never trust a woman if ur a man
